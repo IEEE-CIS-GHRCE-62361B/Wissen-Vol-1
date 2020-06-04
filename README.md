@@ -14,6 +14,6 @@ Read at: https://bit.ly/wissen_april
 
 
 ## Wissen Volume 1 Issue 3
-Release Date: 
+Release Date: 4 June, 2020
 
-Read at: 
+Read at: https://bit.ly/wissen_june
