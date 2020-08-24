@@ -20,6 +20,6 @@ Read at: https://bit.ly/wissen_june
 
 
 ## Wissen Volume 1 Issue 4
-Release Date: Coming Soon
+Release Date: 24 August, 2020
 
-Read at:
+Read at: http://bit.ly/wissen_august20
